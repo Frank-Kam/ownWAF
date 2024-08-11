@@ -5,12 +5,4 @@
 
 今年之內完成 (08/11/2024決定擱置
 
-<br />
-<br />
-<br />
-<br />
-<br />
-沒錯,我是GitHub白痴 :slightly_smiling_face:
-
-
 
